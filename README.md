@@ -1,2 +1,2 @@
 # ralcauchy.github.io
-Geek loves travel and music.
+Geek loves travels and music.
